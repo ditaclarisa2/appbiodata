@@ -1,0 +1,1 @@
+selamat datang di smkn 1 ponorogo,terimakasih
